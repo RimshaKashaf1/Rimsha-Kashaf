@@ -1,3 +1,4 @@
+![Uploading image.png…]()
 
 <h1 align="center">Hi 👋, I'm Rimsha Kashaf</h1>
 <h3 align="center">I'm currently a fourth-year student pursuing a Bachelor's degree in Psychology. 💡 My academic journey has been an exhilarating exploration of the human mind and behavior, and I'm passionate about unraveling the complexities that make us who we are. From delving into psychological theories to engaging in hands-on research, each day is a step closer to understanding the intricacies of the human experience. As I navigate my final year, I'm eager to apply my knowledge in practical settings and contribute to the field.</h3>
